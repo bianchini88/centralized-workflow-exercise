@@ -5,6 +5,6 @@
 
 
 ## Instructions
-hack nuts into tiny bits
-Serve portions of ice in large glasses or on glass plates
-garnish with sauce and nuts
+- hack nuts into tiny bits 
+- Serve portions of ice in large glasses or on glass plates
+- garnish with sauce and nuts
