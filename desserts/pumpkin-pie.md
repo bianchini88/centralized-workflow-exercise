@@ -29,7 +29,7 @@
 - Smash manually until somehow homogeneous
 - Add eggs and blend
 - Add evaporated milk and blend
-- Serve with a scoop of vanilla ice cream on the side
+- Serve with two scoops of vegan vanilla ice cream on the side
 
 
 ## Baking
