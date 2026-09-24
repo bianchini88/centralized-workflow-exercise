@@ -18,6 +18,6 @@
 - chop onion
 - chop chili
 - squeeze lime
-- add salt
+- add salt and black pepper
 - and mix well
 - enjoy!

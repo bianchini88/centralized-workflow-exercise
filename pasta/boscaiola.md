@@ -12,4 +12,8 @@
 
 ## Instructions
 
-TODO: these are missing
+- Cook the pasta.
+- Fried the onion, mushrooms and pancetta.
+- Add the peas.
+- Add the cooked pasta.
+- Enjoy :)
