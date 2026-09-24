@@ -1,6 +1,6 @@
 ## Ingredients
 - 2l box of ice cream
-- Choccolate or jam sauce
+- Chocolate or jam sauce
 - almonds, hazelnuts or walnuts
 
 
