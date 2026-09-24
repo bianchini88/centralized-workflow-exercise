@@ -7,6 +7,7 @@
 - 1 chili
 - 1 lime
 - 1 tsp salt
+- black pepper to taste
 - 1/2 onion
 - 1 Tbsp cilantro
 
@@ -17,6 +18,6 @@
 - chop onion
 - chop chili
 - squeeze lime
-- add salt
+- add salt and black pepper
 - and mix well
 - enjoy!
